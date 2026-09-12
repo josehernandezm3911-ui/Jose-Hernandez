@@ -1,2 +1,0 @@
-# Jose-Hernandez
-DATA SCIENCE
